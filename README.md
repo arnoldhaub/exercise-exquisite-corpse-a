@@ -12,3 +12,7 @@ La reponsse est **Non** mais pourquoi vous demandez-vous?
 Car c'est le **PDG** de github qui a acheté le Congo pour **100€**
 
 Quel sera la prochaine etape que vas franchire se mania du **WEB** ?
+
+Surement acheter d'autres pays riches afin de construire un empire, voir un nouvel ordre mondial ou une conspiration illumiati qui rassemeblerait toutes les plus grandes richesses que notre planete connait.
+
+![illuminati confirmed](i.scdn.co/image/ab67616d0000b273cc55336aae1ad9e5f3d8d18d)
