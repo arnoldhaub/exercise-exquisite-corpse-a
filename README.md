@@ -20,4 +20,7 @@ Surement acheter d'autres pays riches afin de construire un empire, voir un nouv
 Et une fois que le monde s'écrasera au pied de BEZOS (le vrai héritier cacher derriére **GIT TEUB**)  
 
 
-Un grand de riz vaudra surement: ### 2500 euros ###
+Un grand de riz vaudra surement: ***2500 euros***
+
+Avec l'inflation, le monde entrera dans une nouvelle crise mondiale et l'apocalypse arrivera.
+On devra tous subir des pluies acides et les ***Russes*** essayeront d'envahir le monde.
